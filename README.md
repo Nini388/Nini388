@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Nini388
+- 👀 I’m interested in everything you can teach me
+- 🌱 I’m currently learning how to work on github 
+- 💞️ I’m looking to collaborate on passwords and plugins 
+- 📫 How to reach me @Nini388 or on swanepoeln29@gmail.com
+- Nini388/Nini388 ✨ special ✨ 
